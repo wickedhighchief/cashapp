@@ -1,4 +1,4 @@
-# Before you continue
+1# Before you continue
 
 SALE IN OUR CHANNEL
 - PLEASE READ [Frequently asked questions](#FAQ)!!!
